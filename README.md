@@ -5,9 +5,9 @@ Khun Kish ผู้ก่อตั้ง MiMib Studio บริษัทเล�
 
 
 **ช่องทางติดต่อ**
-✅https://khunkish.github.io/
-✅https://www.facebook.com/khunkish
-✅https://www.instagram.com/khunkish
-✅https://www.youtube.com/@khunkish
-✅https://riees.org/
-✅http://khunkishbigbike.shop/
+-✅https://khunkish.github.io/
+-✅https://www.facebook.com/khunkish
+-✅https://www.instagram.com/khunkish
+-✅https://www.youtube.com/@khunkish
+-✅https://riees.org/
+-✅http://khunkishbigbike.shop/
